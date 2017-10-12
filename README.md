@@ -1,2 +1,6 @@
 # GameDev-Unleashed-vol.-1
-# Pavel is Here
+# "Docházka" ->
+# Filip - ano
+# Pavel - ano
+# Tomáš -
+# Petr -
