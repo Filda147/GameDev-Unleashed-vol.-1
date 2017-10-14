@@ -1,6 +1,6 @@
 # GameDev-Unleashed-vol.-1
-# "Docházka" ->
+# "Dochï¿½zka" ->
 # Filip - ano
 # Pavel - ano
-# Tomáš -
+# Tomï¿½ï¿½ - Hell yeah nigga!
 # Petr - ano
